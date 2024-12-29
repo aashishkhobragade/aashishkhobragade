@@ -1,5 +1,5 @@
 
-## About me 
+## नमस्ते I'm Ashish Khobragade
 
 🎨 As a passionate designer, I embrace my introverted nature as a strength. It gives me the ability to observe the world around me with a keen eye for detail, translating those insights into thoughtful and creative visual experiences. My work is a reflection of this introspection, blending creativity with precision to craft designs that are not only aesthetically pleasing but also meaningful. Whether I'm working on UI/UX projects or exploring new ideas, I bring a unique perspective that turns quiet observation into impactful design.
 
